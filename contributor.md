@@ -1,0 +1,5 @@
+Gefry Dwiputra (1301154392)
+Bramantio Agung Prabowo (1301154182)
+Muhammad Verly (1301154210)
+Alda Delas (1301154266)
+Moch. Rheza Wira Z. Hasbi (1301154168)
